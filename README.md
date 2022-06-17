@@ -7,7 +7,7 @@
 
 🏋️And for my research, I'm now focusing on CrossFit in Japan, a type also the name of a gym originated in the United States, and trying to find the interaction among this and body anthropology, also Affect theories which is quite popular the recent several years. So if you're a dynamic menmber of CrossFit, let's chat more about that!
 
-About the future? Not yet, but hopefully I could be an awesome communicator with all my language skills although they're still not mature enough but... who knows the next right? 😉
+About the future? Not determined yet, but hopefully I could be an awesome communicator with all my language skills although they're still not mature enough but... who knows the next right? 😉
 
 
 ## Find me on:
