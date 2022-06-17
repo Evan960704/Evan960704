@@ -1,7 +1,7 @@
 # It's Evan! 👋
 
 
-✈️After undergraduate university I was working as a flight attendant during 2018-2020 at a Chinese airline company named China Southern, yes don't be confused just as what you are thinking of, it's true. Try to talk with me about your native country, maybe I've been there for times!
+✈️After undergraduate university I was working as a flight attendant during 2018-2020 at a Chinese airline company named [China Southern](https://en.wikipedia.org/wiki/China_Southern_Airlines), yes don't be confused just as what you are thinking of, it's true. Try to talk with me about your native country, maybe I've been there for times!
 
 🏫 I’m currently learning Anthropology in Humannities of Faculty at Hokkaido University, which is located in a super northern island of Japan and full of snow all over the year, ok it's joking ;) but it's quite cold anyway.
 
