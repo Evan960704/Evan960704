@@ -14,7 +14,7 @@ About the future? Not determined yet, but hopefully I could be an awesome commun
 
 Instagram: ekikievan (just a daily life account)
 
-![alt text](https://github.com/Evan960704/Evan960704.github.io/blob/main/S__15925252.jpg)
+![alt text](S__15925252.jpg)
 <!--
 
 
